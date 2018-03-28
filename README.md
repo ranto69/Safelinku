@@ -1,0 +1,2 @@
+# Safelinku
+Blogranweb.blogspot.com
